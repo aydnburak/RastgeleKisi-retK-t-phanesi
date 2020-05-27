@@ -1,0 +1,1 @@
+# RastgeleKisi-retK-t-phanesi
